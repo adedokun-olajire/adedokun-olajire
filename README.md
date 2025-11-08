@@ -1,5 +1,7 @@
 ## Hi there 👋
 International Journal of Agronomy - 2024 - Adekiya - Soil Characteristics Growth Yield Mineral Composition and Proximate.pdf
+
+1-s2.0-S2772801325000600-main.pdf
 <!--
 **adedokun-olajire/adedokun-olajire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
